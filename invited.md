@@ -1,6 +1,6 @@
-title: Fuck your dad
-cause why not
+### Thank you for inviting me!
 
-# Lmao
+## Please help support Kairos Bot by voting and joining the support server! It is free!
 
-[dont press this u idiot](https://kairosbot.live/top.gg)
+Join the [support server](https://kairosbot.live/support) here!\
+And [vote](https://kairosbot.live/top.gg) for me!
